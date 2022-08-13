@@ -19,4 +19,7 @@
 9G (01/01/2022): ⬆️ Inglese, Franco 
 
 To be continued
+
 Fare sto sito è stato più faticoso del necessario
+
+In Quaia we trust
