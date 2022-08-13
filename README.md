@@ -1,4 +1,3 @@
-# QND
 0G (11 maggio 2015):Piccinno, Buccarella
 
 1G (giugno 2015): ⬆️Piccolo, Casole, Alemanno 
