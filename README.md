@@ -1,25 +1,26 @@
-0G (11 maggio 2015):Piccinno, Buccarella
+0G (11/05/2015):Piccinno, Buccarella
 
-1G (giugno 2015): ⬆️Piccolo, Casole, Alemanno 
+1G (06/2015):⬆️Piccolo, Casole, Alemanno 
 
-2G (estate 2015): ⬆️Culiersi, Vergari
+2G (est.2015):⬆️Culiersi, Vergari
 
-3G (settembre 2015 - agosto 2016): ⬆️Liviello, Sabato, Scarpina ⬇️Liviello, Scarpina 
+3G (09/2015 - 08/2016):⬆️Liviello, Sabato, Scarpina⬇️Liviello, Scarpina 
 
-4G (settembre 2016 - aprile 2017): ⬆️Metafuni, Velcani ⬇️Sabato, Velcani
+4G (09/2016 - 04/2017):⬆️Metafuni, Velcani⬇️Sabato, Velcani
 
-5G (aprile 2017): ⬆️Piro, Portaccio
+5G (04/2017):⬆️Piro, Portaccio
 
-6G (maggio 2017 - marzo 2018): ⬆️Albano, Liviello ⬇️Casole, Culiersi, Portaccio
+6G (05/2017 - 03/2018):⬆️Albano, Liviello⬇️Casole, Culiersi, Portaccio
 
-7G (giugno 2018): ⬆️Casole, Culiersi, Portaccio, Scorrano
+7G (06/2018):⬆️Casole, Culiersi, Portaccio, Scorrano
 
-8G (settembre 2018): ⬆️ Buccarella L.
+8G (09/2018):⬆️ Buccarella L.
 
-9G (01/01/2022): ⬆️ Inglese, Franco 
+9G (01/01/2022):⬆️ Inglese, Franco
+
+10G (14/08/2022):⬆️ Perrone
 
 To be continued
 
-Fare sto sito è stato più faticoso del necessario
 
 In Quaia we trust
